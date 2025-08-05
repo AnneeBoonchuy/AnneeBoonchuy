@@ -9,6 +9,7 @@
 
 ![image](https://github.com/user-attachments/assets/c30665cf-a2d3-4d74-9f2e-912b7044e81e)
 
-
+artist credits
 ### ᴬʳᵗ ᵇʸ @ˢʰⁱᵐᵐʸᴼʰ_ ᵒⁿ ᵗʷⁱᵗᵗᵉʳ
 Repository made by tutte (@SashaWaybriight)
+### pfp by @hadallae
